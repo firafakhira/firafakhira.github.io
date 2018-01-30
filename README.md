@@ -1,2 +1,0 @@
-# firafakhira.github.io
-hehe
